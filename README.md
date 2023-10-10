@@ -1,1 +1,1 @@
-visit now :- https://anshu-paliwal.github.io/college-website/
+Visit now :- https://anshu-paliwal.github.io/college-website/
